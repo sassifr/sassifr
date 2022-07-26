@@ -7,4 +7,4 @@ lover of all things green
 <br>
 🐸 🌿 🎍
 <br><br>
-🧋 strawberry matcha milk tea half sugar regular ice < my boba order (please send me some)
+🧋 strawberry matcha milk tea half sugar regular ice <-- my boba order (please send me some)
